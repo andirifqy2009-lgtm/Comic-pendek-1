@@ -1,1 +1,0 @@
-# Comic-pendek-1
